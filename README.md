@@ -1,0 +1,3 @@
+yo, im ARandomShark2.
+i like umm.. build stuff in roblox studio for a game on roblox called waste of space
+im only here because github is required for the loading system to work...
